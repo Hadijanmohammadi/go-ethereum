@@ -1,3 +1,25 @@
+// Issuance of formal and intelligent computer licensing of official contracts on digital currency, especially //
+// +Etherium Crypto London-"Legal and joint subscription of private and public smart switch delivered by" 
+// "Mr. Jan Mohammadi Hadi to Iran's national identification ^°``"number 4020*****2."
+// Official and legal "crypto subscription code, dear customer. New)(834@-930005531104)
+« 34901030000264 »? ※74702183※ ④⑨⅛①⓪⓪⓪②
+
+// I am a party to the contract, that is, a former customer of digital currencies digital currencies that on July 11, 2014 
+// These digital currencies were bought from a Russian company and, according to past agreements,
+|۩due to the development of its resources, it transferred and merged all its currency assets to Crypto London UK, 
+◆™both of which are involved in the opening of DAP Radar Holding. The delivery of the new and respected Iranian customer 
+¶§with valid and official contracts and documents signed between himself and Joseph Raphael (former customer and user) 
+\\ and the delivery of Mr. Hadi Jan Mohammadi (new customer and user) has been done legally.
+~~___~~ ##############################################~~___~~
+\\ According to clear and smart documents, the delivered currencies are equivalent to 14 types of currencies,
+\\ starting from" Bitcoin, Ethereum and ending with Sushi and UniSwap."
+\\ which is equivalent to 7 official and legal "years in the profits and losses of companies with crypto representation." π√
+\\® "꧂Organization. Partnership (former customer agreement expires on December 19, 2022꧂"
+\\A formal contract between companies where & "cryptocurrencies have contributed 100% to dividends" 
+for the past few years and a new client with "$private keys B-:-/" in hand must start mining coins 
+var to access #%78/465.1845# from the large pool. And the DAP powerful radar company will start working.
+func fool Perfect accuracy without any mistakes
+
 // Copyright 2014 The go-ethereum Authors
 // This file is part of the go-ethereum library.
 //
